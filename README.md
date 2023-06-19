@@ -1,16 +1,16 @@
-### Hi there 👋
+**bem vindo au meuu perfil**
 
-<!--
-**luuhrodrigues/luuhrodrigues** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+me chamo luana 
 
-Here are some ideas to get you started:
+tenho 23 anos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+moro em vera cruz do oeste 
+
+solteira
+
+gosto de jogar volei 
+
+🏳️‍🌈
+
+![](https://media.tenor.com/VFmLLdzHsH0AAAAM/gay-pride-flag-non-binary.gif)
+
